@@ -1,8 +1,13 @@
--  Hi, I’m @Tonny-blaire
+-  Hi, I’m Tonny Blaire 
+
 -  I’m interested in technology and software engineering machine learning and Information technology 
--  I’m currently learning ... artificial intelligence machine learning and Development 
+
+-  I’m currently learning ... artificial intelligence machine learning and Development
+ 
 -  I’m looking to collaborate on summitsand hackathons to connect with other techies 
--  How to reach me through either my email blairetonney4@gmail.com or my phone number +245715514130 or rather through my linked in https://www.linkedin.com/in/tonny-blaire-3b39bb222
+
+-  How to reach me through either my email blairetonney4@gmail.com or my phone number +254715514130 or rather through my linked in https://www.linkedin.com/in/tonny-blaire-3b39bb222
+
 -  Pronouns:Mr/He 
 -  Fun fact:  I love codding 
 
